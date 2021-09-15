@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Erik
 - 👀 I’m interested in *eminemstön*
-- 🌱 I’m currently learning **eminemstön igen**
+- 🌱 I’m currently learning *\*neminemstön igen\**
 - 💞️ I’m looking to collaborate on *uh, uh*
 - 📫 How to reach me: KOM DÅ
 
